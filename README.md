@@ -1,14 +1,14 @@
 # SCRIPT-COMPLETO-CASSINO
-Venda, opere ou revenda sua própria **plataforma de cassino online** ou **sistema chinês de alta performance**, totalmente white-label, pronta para produção e escalável para grandes operações.  💰 Licenças disponíveis   📲 Contato direto (WhatsApp): https://wa.me/5511910220770  
+Venda, opere ou revenda sua própria **plataforma de cassino online** ou **sistema chinês de alta performance**, totalmente white-label, pronta para produção e escalável para grandes operações.  💰 Licenças disponíveis   📲 Contato direto (WhatsApp): https://wa.me/5511912536227  
 
 # CODIGO-FONTE-CASSINOS
-> Venda, opere ou revenda sua própria **plataforma de cassino online** ou **sistema chinês de alta performance**, totalmente white-label, pronta para produção e escalável para grandes operações.  💰 Licenças disponíveis   📲 Contato direto (WhatsApp): https://wa.me/5511910220770  
+> Venda, opere ou revenda sua própria **plataforma de cassino online** ou **sistema chinês de alta performance**, totalmente white-label, pronta para produção e escalável para grandes operações.  💰 Licenças disponíveis   📲 Contato direto (WhatsApp): https://wa.me/5511912536227  
 # 🎰 PLATAFORMAS WHITE LABEL — CASSINO ONLINE & SISTEMAS CHINESES
 
 > Venda, opere ou revenda sua própria **plataforma de cassino online** ou **sistema chinês de alta performance**, totalmente white-label, pronta para produção e escalável para grandes operações.
 
 💰 Licenças disponíveis  
-📲 Contato direto (WhatsApp): https://wa.me/5511910220770  
+📲 Contato direto (WhatsApp): https://wa.me/5511912536227
 
 ---
 
